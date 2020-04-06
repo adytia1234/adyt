@@ -1,2 +1,0 @@
-# adyt
-ini bio saya
